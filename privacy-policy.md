@@ -34,7 +34,7 @@ Vous pouvez à tout moment :
 - Demander la correction ou la suppression de vos données personnelles.  
 - Retirer votre consentement à l’utilisation de certaines données (comme la géolocalisation).  
 
-Pour exercer vos droits, contactez-nous à : **contact@baobittechnologie.com**.
+Pour exercer vos droits, contactez-nous à : **cissefode87062@gmail.com**.
 
 ## 6. Modifications de cette politique
 
